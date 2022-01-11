@@ -7,4 +7,4 @@
 Emin Oğuzhan Ünal 032180062,
 Ömer Faruk Yılmaz 032180076,
 Caner Kafaf 031980010
-Olcay MUstafa YUrt 0321 801 16
+Olcay MUstafa Yurt 0321 801 16
